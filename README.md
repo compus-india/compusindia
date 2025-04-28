@@ -1,1 +1,1 @@
-https://compus-india.github.io/compus
+https://compus-india.github.io/compusindia
